@@ -1,3 +1,4 @@
+![IMG-20240826-WA0013](https://github.com/user-attachments/assets/7b9fdd09-0207-499d-a98f-11b9f57cd1b4)
 
 # Contributor Covenant Code of Conduct
 
